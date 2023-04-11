@@ -1,0 +1,2 @@
+# Gry
+Mavi tik icin
